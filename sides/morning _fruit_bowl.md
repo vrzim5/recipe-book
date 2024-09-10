@@ -14,4 +14,4 @@
 
 - Clean and cut all the fruits 
 - Put everythin a bowl and top it with the muesli and white chocolate
-- Enjoy!
+- Enjoy! :)
