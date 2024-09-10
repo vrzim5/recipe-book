@@ -49,6 +49,8 @@
    - Remove the foil and bake for another 15-20 minutes, or until the cheese is bubbly and golden brown.
 
 6. **Serve:**
+
+7. **There is a non-vegetarian option too**
    - Let the lasagna cool for 10-15 minutes before slicing.
    - Garnish with fresh basil leaves if desired.
    - Serve warm and enjoy
